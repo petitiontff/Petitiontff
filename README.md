@@ -1,12 +1,12 @@
 To,
-The Dean of Student Affairs (DOSA)
-Thapar Institute Of Engineering & Technology
-Bhadson Rd, Adarsh Nagar, Prem Nagar,
-Patiala, Punjab 147004
+The Dean of Student Affairs (DOSA)<br />
+Thapar Institute Of Engineering & Technology<br />
+Bhadson Rd, Adarsh Nagar, Prem Nagar,<br />
+Patiala, Punjab 147004<br />
 
-Subject: Petition for Immediate Action Regarding Mismanagement of Thapar Food Festival and Artist Misrepresentation
-Dear DOSA,
-I am writing on behalf of the concerned students of Thapar University regarding the mismanagement of the recent food festival event. The purpose of this petition is to highlight the unethical behavior displayed by the organizing committee in their handling of the festival, particularly the misrepresentation of the event headlining artist, resulting in a situation that has left both the students and the artist feeling cheated and disrespected.
+Subject: Petition for Immediate Action Regarding Mismanagement of Thapar Food Festival and Artist Misrepresentation<br />
+Dear DOSA,<br />
+I am writing on behalf of the concerned students of Thapar University regarding the mismanagement of the recent food festival event. The purpose of this petition is to highlight the unethical behavior displayed by the organizing committee in their handling of the festival, particularly the misrepresentation of the event headlining artist, resulting in a situation that has left both the students and the artist feeling cheated and disrespected.<br />
 
 As you are likely aware, the food festival, a highly anticipated event, was marred by the fraudulent representation of the headlining artist. The organizing committee advertised and sold tickets for the event on the basis of a specific artist being slated to perform, creating an expectation among the student body. However, to our dismay and shock, the event featured a completely different artist, not the one that was initially advertised. This clear misrepresentation has not only caused disappointment and resentment among the students but has also led to the public shaming of our college's reputation.
 
